@@ -1,2 +1,2 @@
-# Plan-tophilie-
-Avoir une attirance pour une planète, une lune ou une planète naine. 🪐🌙
+# Planétophilie-
+Avoir une attirance sexuelle ou pas pour une planète, une lune ou une planète naine. 🪐🌙
